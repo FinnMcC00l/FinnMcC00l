@@ -1,1 +1,3 @@
-![Untitled52_20260508215523.png](https://github.com/user-attachments/assets/c978361b-4cd4-4aa3-8cc0-27ba93709918)
+i like mccool gang and finn mccool the most
+
+still in wip
